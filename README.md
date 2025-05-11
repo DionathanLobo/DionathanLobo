@@ -22,7 +22,7 @@ I'm open to collaborate on:
 - Educational technology initiatives
 
 ## 📬 Connect With Me
-[Your preferred contact method(s) - email/LinkedIn/etc.]
+[https://linktr.ee/poliglotismoabsurdo]
 
 ## � Pronouns
 He/Him
