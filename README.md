@@ -23,6 +23,7 @@ I'm open to collaborate on:
 
 ## 📬 Connect With Me
 [https://linktr.ee/poliglotismoabsurdo]
+https://www.linkedin.com/in/dionathan-lobo-799295160?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 ## � Pronouns
 He/Him
