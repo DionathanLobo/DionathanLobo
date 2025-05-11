@@ -6,7 +6,7 @@
 - 📚 Passionate about **Hebrew and Portuguese literature** (UFRJ background)
 - 🧠 Researching **language acquisition** and **human communication** processes
 - 🤖 Exploring the intersection of **technology and linguistics**
-- 🎮 Casual gamer (Mage specialist in Mobile Legends - Vexana main!)
+- 🎮 Casual gamer (Mage in Mobile Legends - Vexana main!)
 
 ## � Current Focus
 - Learning **Hebrew language**
@@ -23,7 +23,7 @@ I'm open to collaborate on:
 
 ## 📬 Connect With Me
 [https://linktr.ee/poliglotismoabsurdo]
-https://www.linkedin.com/in/dionathan-lobo-799295160?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+[https://www.linkedin.com/in/dionathan-lobo-799295160?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app]
 
 ## � Pronouns
 He/Him
