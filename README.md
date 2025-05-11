@@ -31,10 +31,6 @@ He/Him
 ## ⚡ Quirky Tidbit
 I have an unwavering loyalty to mage characters in Mobile Legends - you'll always find me dominating the battlefield as Vexana!
 
----
-
-"Language is the roadmap of a culture. It tells you where its people come from and where they are going." - Rita Mae Brown
-
 <!---
 DionathanLobo/DionathanLobo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
