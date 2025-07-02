@@ -6,7 +6,8 @@ I speak **French, English, and Hebrew** fluently, have an **intermediate level o
 
 While I explore **biblical poetry and Jewish narratives in their original language** (my specialty!), I'm also learning to read code: studying **Python, C, C++, and Java**, and getting into web development. Computer science has become my new intellectual challenge!
 
-✨ **Let’s connect!** I’m always open to academic exchange, creative projects, and unexpected collaborations — especially in this new tech journey.
+✨ At the moment, I’m uploading some of my academic work from UFRJ — which I also discuss on my channels — but soon I’ll be sharing projects focused on computer science as well.  
+✨ **Let’s collaborate!** I’m always open to academic exchange, creative ideas, and unexpected partnerships, especially in this exciting new area of development.
 
 > *“Between ancient verses and modern algorithms, I keep writing my story — one line of code and one stanza at a time.”*
 
