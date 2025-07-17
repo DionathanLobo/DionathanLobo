@@ -1,8 +1,8 @@
 # 👋 Hey there! I’m **Mestre Tiota**!
 
-A passionate polyglot, **specialist in Hebrew language and literature** by training (my academic roots are at UFRJ!), now diving into the world of **computer science**.
+A passionate polyglot, licensed in Letters and specialist in Hebrew language and literature (proudly graduated from UFRJ!), now diving into the world of computer science.
 
-I speak **French, English, and Hebrew** fluently, have an **intermediate level of Arabic**, and recently began exploring **Chinese**. On my channel, **Poliglotismo do Mestre Tiota** (YouTube/TikTok/Kwai), I share this language journey filled with tips and delightful discoveries.
+I speak **French, English, and Hebrew** fluently, have an **intermediate level of Arabic**, and recently began exploring **Chinese** and more. On my channel, **Poliglotismo do Mestre Tiota** (YouTube/TikTok/Kwai), I share this language journey filled with tips and delightful discoveries.
 
 While I explore **biblical poetry and Jewish narratives in their original language** (my specialty!), I'm also learning to read code: studying **Python, C, C++, and Java**, and getting into web development. Computer science has become my new intellectual challenge!
 
