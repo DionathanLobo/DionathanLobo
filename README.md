@@ -17,4 +17,4 @@ While I explore biblical poetry and Jewish narratives in their original language
 
 [![Blog](https://img.shields.io/badge/Meu%20Blog-Confira-blue?style=for-the-badge&logo=github)](https://dionathanlobo.github.io/Meu-Blog-Confira/)  
 [![Linktree](https://img.shields.io/badge/Linktree-Open-orange?style=for-the-badge&logo=linktree)](https://linktr.ee/poliglotismodomestreTiota)  
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-Connect-with-me-blue?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/dionathan-lobo-799295160?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-Connect-blue?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/dionathan-lobo-799295160?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
