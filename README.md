@@ -5,7 +5,7 @@ I speak French, English, and Hebrew fluently, have an intermediate level of Arab
 
 While I explore biblical poetry and Jewish narratives in their original language (my specialty!), I'm also learning to read code: studying languages such as C, getting into web development, and others. Computer science and algorithms have become my new intellectual challenge!
 
-✨ At the moment, I’m uploading some of my academic work (articles, essays, analyses) from UFRJ — which I also discuss on my channels.
+✨ At the moment, I’m uploading some of my academic work (articles, essays, analyses) from UFRJ — which I simultaneously discuss on my channels.
 
 ✨ Let’s collaborate! Languages are key for humanity!
 
